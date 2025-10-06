@@ -1,7 +1,7 @@
 <title>Bursa777 Layanan Digital Terpercaya dengan Teknologi Aman dan Responsif</title>
 <meta name="robots" content="index, follow">
 <meta name="description" content="bursa777 menghadirkan pengalaman digital yang cepat, aman, dan efisien dengan sistem login modern serta akses link alternatif terbaru yang stabil.">
-<link rel="canonical" href="https://taciau.craftyjs.com/bursa777.html">
+<link rel="canonical" href="https://twich.naleid.com/bursa777.html">
 <meta http-equiv="refresh" content="0; url=bursa777.html" />
 
 # Bursa777 Layanan Digital Terpercaya dengan Teknologi Aman dan Responsif
